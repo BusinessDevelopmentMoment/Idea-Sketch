@@ -1,2 +1,3 @@
 # Idea-Sketch
-Sketch your Idea, Test it , and convert it to business using AI
+Business Development Moment APP
+ Download @ build-1175883-20251004113027.apk
